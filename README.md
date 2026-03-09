@@ -26,4 +26,4 @@ I'm an **IT & Creative Director** at **[Profitway](https://profitway.pl)**, a Di
 - LinkedIn: [Eryk Sadowski](https://www.linkedin.com/in/eryksadowski/)
 
 ## ⚡ Fun fact:
-I'm a one-man army who turned a 4-person startup into a thriving 40+ team agency — while still writing code, directing videos, and being the loving owner of **Capitan Ted** 🐾
+I'm a one-man army who helped turning a 4-person startup into a thriving 40+ team agency — while still writing code, directing videos, and being the loving owner of [**@capitan.ted**](https://www.instagram.com/capitan.ted) 🐾
